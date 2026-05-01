@@ -45,3 +45,8 @@ If you have a Titan subscription that extends past the 28th of June 2026, you'll
 
 Thank you everyone so much for the support along this journey.
 — Callum & Dries
+HEY I am Nisarg Nisarg20101147(ign) i was part of the server since 2023 it been 3 years 
+I really had enjoyed bedwars I am deeply sadden by this closure i use to play with my friend all the time 
+i am speachless today by this notice 
+this was the only reson i played minecarft now i might just quit minecraft too my friends quited this long back nut emotion and fun didnt allowed me to. "emotions are great but words are less"
+bye forever bye to my favorite server bye...............
